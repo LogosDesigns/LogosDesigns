@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LogosDesigns
-- 👀 I’m interested in Graphic designs, Social media managers and blog
-- 🌱 I’m currently Advancing my graphics skills in motion graphics, UI/Ux
+- 👀 I’m interested in Graphic designs, Social media manager and blog
+- 🌱 I’m currently Advancing my graphic skills in motion graphics, UI/Ux
 - 💞️ I’m looking to collaborate on graphic designers and web developers
 - 📫 How to reach me 09069028447
 - 😄 Pronouns: He/Him
